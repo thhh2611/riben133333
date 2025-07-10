@@ -20,4 +20,4 @@
 
 点击任意入口，立即体验2025年最好用的日本AV高清观看平台！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/thhh2611/riben133333 ）</span> 
